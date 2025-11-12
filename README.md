@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a aspiring computer science student
+I am an aspiring computer science student
 
 
 ## 🌐 Socials:
